@@ -1,1 +1,0 @@
-# Cybersecurity-Internship-Week2
